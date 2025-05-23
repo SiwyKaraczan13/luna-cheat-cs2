@@ -1,2 +1,1 @@
-# luna-cheat-cs2
-luna cheat cs2
+its virus ig so dont open it on ur pc
